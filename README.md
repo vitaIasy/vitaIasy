@@ -10,8 +10,8 @@
 
 ###### [𝘢tabook](https://aevsria.atabook.org/?page=1)⠀⠀[𝘴trawpage](https://katefies.straw.page)⠀⠀[𝘱rns.𝘱age](https://en.pronouns.page/@aevsria)
 
-#### <div align="center">    ೀ 𓏼 ◜ ͡ ₊ ׅ ׄ ☯︎ _ ⍴ᥣᥱᥲsᥱ  ⍴ᥲrr᥆𝗍 ‚
-  𓅆 … ⍴ᥣᥱᥲsᥱ ‚ ⁺ ݂ ᜔♪ྀི𓏼 ׄ⑅  ͜ ໋֗◞
+#### <div align="center">   ![image](https://github.com/aevsria/aevsria/blob/57b19730fd67a7b8bb232c44101e955a3eb7b4ce/IMG_1750.gif)  ೀ 𓏼 ◜ ͡ ₊ ׅ ׄ ☯︎ _ ⍴ᥣᥱᥲsᥱ  ⍴ᥲrr᥆𝗍 ‚
+  𓅆 … ⍴ᥣᥱᥲsᥱ ‚ ⁺ ݂ ᜔♪ྀི𓏼 ׄ⑅  ͜ ໋֗◞ ![image](https://github.com/floralies/floralies/blob/c2f86af43baadf28ee37fb6724079c11c95d3c78/IMG_2237.gif)
 <p align="center">
   <img src="https://github.com/floralies/floralies/blob/e40dfbf9f2533390475ab269ff288d41e5fca3ee/IMG_2231-removebg-preview.png" alt="Description">
 </p>
