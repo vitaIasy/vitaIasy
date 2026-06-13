@@ -8,7 +8,7 @@
 
 𓏏　c*h　encouraged!　ノ　dnc　&　no inspo　,　thx　^_^　![image](https://github.com/floralies/test/blob/b926f67d25d6631ce16b0b3a25fd5740e2fecc1e/IMG_2305.gif)
 
- ֔![image](https://github.com/floralies/test/blob/478a2a9f2150e89b383d179fe78f2ff3acee3513/IMG_2304.gif)　◜ ͡ ִ ֗ 𓏼iwcaution/care　⋮　always offtab or afk　𖦹
+ ֔![image](https://github.com/floralies/test/blob/478a2a9f2150e89b383d179fe78f2ff3acee3513/IMG_2304.gif)　◜ ͡ ִ ֗ 𓏼　iwcaution/care　⋮　always offtab or afk　𖦹
 
 ###### <div align="center"> ⠀𓉸　cipher graphics : @astr0v4l on tumblr 𓈒　
 
