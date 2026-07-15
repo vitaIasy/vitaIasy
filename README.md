@@ -11,6 +11,6 @@
 
  ֔![image](https://github.com/floralies/test/blob/478a2a9f2150e89b383d179fe78f2ff3acee3513/IMG_2304.gif)　◜ ͡ ִ ֗ 𓏼𝒾wcaution/care at all times　⋮　𝓊sually offtab or afk　
 
-###### <div align="center"> ⠀𓉸　ac @velvsuki on x , xiastraly on pin 𓈒　
+###### <div align="center"> ⠀𓉸　ic @velvsuki on x , ac xiastraly on pin 𓈒　
 
 <br clear="left"/>
