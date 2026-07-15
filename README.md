@@ -13,6 +13,6 @@
 
  $\color{#4534a3}{ \textsf{◜ ͡ ִ ֗ 𓏼}}$ $\color{#5b34a4}{\textsf{𝒾wcaution}}$ $\color{#7134a3}{\textsf{　/}}$ $\color{#8634a3}{\textsf{　care}}$ $\color{#9c34a3}{ \textsf{　always}}$ $\color{#a3348b}{ \textsf{　please}}$ $\color{#a33475}{ \textsf{　⋮}}$ $\color{#a33459}{ \textsf{ 𝓊sually}}$ $\color{#a33443}{ \textsf{　offtab}}$ $\color{#a33434}{ \textsf{　or}}$ $\color{#a34134}{ \textsf{　afk}}$
 
-###### <div align="center">  ֔𓉸　ac @xelyin_ & @__farat__ on x 𓈒　![image](https://github.com/floralies/test/blob/478a2a9f2150e89b383d179fe78f2ff3acee3513/IMG_2304.gif)
+###### <div align="center">  ֔𓉸　ac @karaisfound_ & __farat__ on x 𓈒　![image](https://github.com/floralies/test/blob/478a2a9f2150e89b383d179fe78f2ff3acee3513/IMG_2304.gif)
 
 <br clear="left"/>
