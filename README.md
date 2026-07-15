@@ -5,7 +5,7 @@
 
 ![](https://komarev.com/ghpvc/?username=aevsria&label=⠀⠀⠀⦮⠀⦯⠀⠀⠀&color=a058b2)　![image](https://github.com/floralies/test/blob/c0e0cc73916e53c820eac9ee403b698fc9d65907/IMG_2301.gif)　<img src="https://img.shields.io/badge/ฅ ฅ--fde9fd" alt="Description">
 
- #### [新book](https://aevsria.atabook.org/?page=1) ⑅꒸𓐇ᩧຼ𓈒ֺּໃ༷ [𝘴trawpage](https://katefies.straw.page) 𓈒ֺּׅ𓏼 ͜͝ ◞ ྀི [𝘱rns.𝘱age](https://en.pronouns.page/@aevsria)
+ #### [新book](https://aevsria.atabook.org/?page=1) ⑅꒸𓐇ᩧຼ𓈒ֺּໃ༷ [𝘴trawpage](https://vitalasyy.straw.page) 𓈒ֺּׅ𓏼 ͜͝ ◞ ྀི [𝘱rns.𝘱age](https://en.pronouns.page/@aevsria) [𝘨uns.lol](https://guns.lol/aevsria)
 
 𓏏　𝒸*h　encouraged　at　all　times!　ノ　𝘥nc　.　ask　for　inspo　,　thx !　^_^　![image](https://github.com/floralies/test/blob/b926f67d25d6631ce16b0b3a25fd5740e2fecc1e/IMG_2305.gif)
 
