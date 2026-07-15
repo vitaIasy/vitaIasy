@@ -1,4 +1,4 @@
-<img align="left" width="400" src="https://github.com/planetlcrd/trickeryie/blob/1bfcd6eaacef02fe18f49c2d4f1a477b5fa87728/ok-removebg-preview.png">
+<img align="left" width="300" src="https://github.com/planetlcrd/trickeryie/blob/1bfcd6eaacef02fe18f49c2d4f1a477b5fa87728/ok-removebg-preview.png">
 
 
 　<div align="center">![image](https://github.com/floralies/test/blob/a4c96468e1ac1be5822d3575db2d6cce846b53a3/IMG_2302.gif)　𝘬ate　𓏫　𝓈he　⸝⸝　𝘩er　⏖　.
