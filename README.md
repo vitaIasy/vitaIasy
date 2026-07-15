@@ -7,7 +7,7 @@
 
  #### [新book](https://aevsria.atabook.org/?page=1) ⑅꒸𓐇ᩧຼ𓈒ֺּໃ༷ [𝘴trawpage](https://katefies.straw.page) 𓈒ֺּׅ𓏼 ͜͝ ◞ ྀི [𝘱rns.𝘱age](https://en.pronouns.page/@aevsria)
 
-𓏏　𝒸*h　encouraged　at　all　times!　ノ　𝘥nc　&　no inspo　,　thx !　^_^　![image](https://github.com/floralies/test/blob/b926f67d25d6631ce16b0b3a25fd5740e2fecc1e/IMG_2305.gif)
+𓏏　𝒸*h　encouraged　at　all　times!　ノ　𝘥nc　.　ask　for　inspo　,　thx !　^_^　![image](https://github.com/floralies/test/blob/b926f67d25d6631ce16b0b3a25fd5740e2fecc1e/IMG_2305.gif)
 
  ֔![image](https://github.com/floralies/test/blob/478a2a9f2150e89b383d179fe78f2ff3acee3513/IMG_2304.gif)　◜ ͡ ִ ֗ 𓏼𝒾wcaution/care at all times　⋮　𝓊sually offtab or afk　
 
