@@ -1,4 +1,4 @@
-<img align="left" width="500" src="https://github.com/floralies/test/blob/478a2a9f2150e89b383d179fe78f2ff3acee3513/IMG_2287.png">
+<img align="left" width="500" src="https://github.com/planetlcrd/trickeryie/blob/1bfcd6eaacef02fe18f49c2d4f1a477b5fa87728/ok-removebg-preview.png">
 
 
 　<div align="center">![image](https://github.com/floralies/test/blob/a4c96468e1ac1be5822d3575db2d6cce846b53a3/IMG_2302.gif)　𝘬ate　𓏫　𝓈he　⸝⸝　𝘩er　⏖　.
@@ -11,6 +11,6 @@
 
  ֔![image](https://github.com/floralies/test/blob/478a2a9f2150e89b383d179fe78f2ff3acee3513/IMG_2304.gif)　◜ ͡ ִ ֗ 𓏼𝒾wcaution/care at all times　⋮　𝓊sually offtab or afk　
 
-###### <div align="center"> ⠀𓉸　ic @velvsuki on x 𓈒　
+###### <div align="center"> ⠀𓉸　ac @velvsuki on x , xiastraly on pin 𓈒　
 
 <br clear="left"/>
