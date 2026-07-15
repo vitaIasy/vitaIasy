@@ -1,4 +1,4 @@
-<img align="left" width="400" src="https://github.com/vitaIasy/planetlcrd/blob/2292846c2034b8399a4f2836ca26676496610917/IMG_2439-Picsart-BackgroundRemover.jpeg.png">
+<img align="left" width="375" src="https://github.com/vitaIasy/planetlcrd/blob/2292846c2034b8399a4f2836ca26676496610917/IMG_2439-Picsart-BackgroundRemover.jpeg.png">
 
 
 　<div align="center">![image](https://github.com/floralies/test/blob/a4c96468e1ac1be5822d3575db2d6cce846b53a3/IMG_2302.gif)　𝘬ate　𓏫　𝓈he　⸝⸝　𝘩er　⏖　.
