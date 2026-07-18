@@ -1,4 +1,4 @@
-<img align="left" width="450" src="https://github.com/vitaIasy/vitaIasy/blob/986747c7aaf220abb7773da5dd3af23ad2adeb98/IMG_2439-Picsart-BackgroundRemover.jpeg%202.png">
+<img align="left" width="425" src="https://github.com/vitaIasy/vitaIasy/blob/986747c7aaf220abb7773da5dd3af23ad2adeb98/IMG_2439-Picsart-BackgroundRemover.jpeg%202.png">
 
     
  <div align="center">
