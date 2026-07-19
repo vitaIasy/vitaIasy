@@ -13,7 +13,7 @@
 
  $\color{#4534a3}{ \textsf{◜ ͡ ִ ֗ 𓏼}}$ $\color{#5b34a4}{\textsf{𝒾wcaution}}$ $\color{#7134a3}{\textsf{　/}}$ $\color{#8634a3}{\textsf{　care}}$ $\color{#9c34a3}{ \textsf{　always}}$ $\color{#a3348b}{ \textsf{　please}}$ $\color{#a33475}{ \textsf{　⋮}}$ $\color{#a33459}{ \textsf{ 𝓊sually}}$ $\color{#a33443}{ \textsf{　offtab}}$ $\color{#a33434}{ \textsf{　or}}$ $\color{#a34134}{ \textsf{　afk}}$
 
- ###### <div align="center">  ֔𓉸　© __farat__ 𓈒　![image](https://github.com/floralies/test/blob/478a2a9f2150e89b383d179fe78f2ff3acee3513/IMG_2304.gif)
+ ###### <div align="center">  ֔𓉸　© __ farat __ 𓈒　![image](https://github.com/floralies/test/blob/478a2a9f2150e89b383d179fe78f2ff3acee3513/IMG_2304.gif)
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=g0ajh2dlv0n03s8ei2qrox2vi&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=5b34a4&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=g0ajh2dlv0n03s8ei2qrox2vi&redirect=true)
 
