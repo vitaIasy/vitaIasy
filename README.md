@@ -7,7 +7,7 @@
 
 ![](https://komarev.com/ghpvc/?username=aevsria&label=⠀⠀⠀⦮⠀⦯⠀⠀⠀&color=6c35b3)　![image](https://github.com/floralies/test/blob/c0e0cc73916e53c820eac9ee403b698fc9d65907/IMG_2301.gif)　<img src="https://img.shields.io/badge/ฅ ฅ--d48252" alt="Description">
 
-  [新book](https://aevsria.atabook.org/?page=1) $\color{#5b34a4}{ \textsf{⑅꒸𓐇ᩧຼ𓈒ֺּໃ༷}}$ [strawpage](https://vitalasyy.straw.page) $\color{#a33475}{ \textsf{　𓈒ֺּׅ𓏼 ͜͝ ◞ ྀི}}$[prns.page](https://en.pronouns.page/@aevsria) $\color{#a34134}{ \textsf{　♪ ͡ໃ﹒﹕}}$[guns.lol](https://guns.lol/aevsria)
+  [新book](https://aevsria.atabook.org/?page=1) $\color{#5b34a4}{ \textsf{⑅꒸𓐇ᩧຼ𓈒ֺּໃ༷}}$ [strawpage](https://vitalasyy.straw.page) $\color{#a33475}{ \textsf{　𓈒ֺּׅ𓏼 ͜͝ ◞ ྀི}}$[linktree](https://linktr.ee/katifyc) $\color{#a34134}{ \textsf{　♪ ͡ໃ﹒﹕}}$[carrd](https://katifyc.carrd.co/#)
 
 ![image](https://github.com/floralies/test/blob/b926f67d25d6631ce16b0b3a25fd5740e2fecc1e/IMG_2305.gif) $\color{#4534a3}{\textsf{𓏏　}}$ $\color{#5b34a4}{\textsf{𝒸*h}}$ $\color{#7134a3}{\textsf{　encouraged}}$ $\color{#8634a3}{\textsf{　at}}$ $\color{#9c34a3}{ \textsf{　all}}$ $\color{#a3348b}{ \textsf{　times!}}$ $\color{#a3348b}{ \textsf{　ノ}}$ $\color{#a33475}{ \textsf{　𝘥nc ,}}$ $\color{#a33459}{ \textsf{ ask}}$ $\color{#a33443}{ \textsf{　for}}$ $\color{#a33434}{ \textsf{　inspo .}}$ $\color{#a34134}{ \textsf{　thx !}}$　
 
